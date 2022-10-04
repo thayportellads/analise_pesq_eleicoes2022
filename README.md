@@ -1,0 +1,1 @@
+# analise_pesq_eleicoes2022
